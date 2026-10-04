@@ -5,31 +5,31 @@ Send as **separate messages**, not one block. Mid-morning is fine.
 ---
 
 **1.**
-hey Stephanie! hope you've been good 🙏
+Hi Stephanie! Hope you have been doing well.
 
 **2.**
-figured I'd try here instead — I sent a couple emails but I know inboxes are a black hole
+I figured I would try reaching you on here instead, since emails can get buried.
 
 **3.**
-your site's basically done, just waiting on photos from you. whenever you get a sec, full-res files from a few shoots and I can fill out the whole portfolio
+Your site is pretty much done. The main thing I need now is photos from you. If you can send full resolution files from a few of your shoots I can fill out your whole portfolio.
 
 **4.**
-no rush at all, and if now's a bad time just say the word and I'll hold off til you're ready
+No rush at all. If now is a bad time just let me know and I will wait until you are ready. Take care!
 
 ---
 
-**If she replies and it's going well, then follow with:**
+**Only if she replies:**
 
-site's here whenever you wanna look → scar4ever.netlify.app
+Here is the site whenever you want to take a look: scar4ever.netlify.app
 
-and heads up, the login I sent for editing it is probably in your spam, it comes from sanity.io. happy to resend
+Also, the login I sent you for editing it might have landed in your spam folder. It comes from sanity.io. Happy to resend it.
 
 ---
 
 ## Notes
 
-- **Don't send the link in the opening messages.** A cold DM with a link reads like a pitch and gets swiped away. Lead with a person, not a URL.
-- **One ask only — photos.** Everything else is parked until she's talking again.
-- **Don't send the follow-up block unless she replies.** Stacking messages into silence is worse than one unanswered DM.
-- Send it from whichever account she'd actually recognise you on.
-- If she opens it and doesn't reply within a couple of days, that's your answer about channel — try a text instead.
+- **Do not send the link in the opening messages.** A cold DM that leads with a URL reads like a pitch and gets swiped away.
+- **One ask only, the photos.** Everything else waits until she is talking again.
+- **Do not send the follow-up unless she replies.** Stacking messages into silence is worse than one unanswered DM.
+- Send from whichever account she would recognize you on.
+- If she opens it and still does not reply in a couple of days, that is your answer about the channel. Try a text instead.
